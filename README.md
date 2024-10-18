@@ -70,7 +70,7 @@ nacionalidade 🇧🇷
 
 
 
-
+![](https://www.icegif.com/wp-content/uploads/2022/05/icegif-786.gif)
 
 
 
